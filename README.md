@@ -1,0 +1,2 @@
+# argonass140ohm
+ งาน
